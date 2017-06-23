@@ -1,3 +1,0 @@
-# smartcharity.github.io
-
-ggfgcfgfdfgcgf
